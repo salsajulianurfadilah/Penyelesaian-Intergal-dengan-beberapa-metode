@@ -1,1 +1,1 @@
-# Penyelesaian-Intergal-dengan-beberapa-metode
+# Penyelesaian-Integral-dengan-beberapa-metode
