@@ -1,0 +1,1 @@
+# Penyelesaian-Intergal-dengan-beberapa-metode
